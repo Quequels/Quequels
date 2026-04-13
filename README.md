@@ -1,4 +1,4 @@
-# :woman_technologist_tone1: Queren Gomes
+# 👩🏻‍💻 Queren Gomes
 
 **`Estudante de Desenvolvimento de Sistemas `**
 
