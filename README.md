@@ -1,4 +1,4 @@
-# 🤖 Queren Gomes
+# 👩🏻‍💻 Queren Gomes
 
 **`Estudante de Desenvolvimento de Sistemas `**
 
